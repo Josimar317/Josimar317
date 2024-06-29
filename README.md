@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning how to conduct a well done cybersecurity's audit. 
 - 💞️ I’m looking to collaborate on different projects that can help perfects my skills.
 - 📫 I can be reached by the email address josimarcouthon@gmail.com
-- 😄 
 - ⚡ There is a big difference between a human being and being human.
 
 <!---
